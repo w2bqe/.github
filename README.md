@@ -30,7 +30,7 @@ For top-notch laminate flooring installation in Atlanta, [Orange Cat Flooring](h
 - Experienced professionals ensuring precision
 
 ## Hardwood vs. Laminate Flooring: Which One Is Right for You?
-
+![Image](https://github.com/user-attachments/assets/5f2d489e-0fc2-4b21-9719-b783b91739b3)
 Both hardwood flooring installation in Atlanta and laminate flooring have their advantages, but choosing the right one depends on your needs, budget, and lifestyle.
 
 ### Hardwood Flooring:
