@@ -27,6 +27,7 @@ That’s when I stumbled across a free moon reading.
 ## A Random Click That Changed Everything
 
 It was a regular Tuesday night. I had just finished cleaning up after dinner when I surfed the internet and saw a post for a personalized moon reading.
+[![Image](https://github.com/user-attachments/assets/e2bafb12-d6c7-4bd3-b4b8-39574fdc330e)](https://freemoonreading.getresponsesite.com/)
 
 Normally, I would have ignored it.
 
