@@ -103,8 +103,10 @@ If you’ve been feeling **lost, stuck, or like you’re just going through the 
 
 And the best part? **It’s completely free.**
 
-[Click Here to Get Your Free Moon Reading Now](#)  
-
+[Click below to get your own personalized moon reading and see what it reveals about you.
+](https://freemoonreading.getresponsesite.com/)
 I can’t promise it’ll change your life overnight—but I can promise you this:
 
-**You’ll never look at yourself the same way again.**
+You’ll never look at yourself the same way again.
+
+[Click Here to Get Your Free Moon Reading Now](https://freemoonreading.getresponsesite.com/)
